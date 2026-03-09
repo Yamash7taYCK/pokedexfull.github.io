@@ -1,0 +1,1 @@
+# pokedexfull.github.io
